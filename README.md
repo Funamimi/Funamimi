@@ -7,3 +7,4 @@
 *   「ハリー・ポッター」が大好きで、同じ趣味の友達が欲しいです </3
 
 よろしくお願いします！
+![FwKzmLAaUAASPwcj](https://github.com/user-attachments/assets/e785fda1-bff2-4f36-acf0-82859853e28d)
