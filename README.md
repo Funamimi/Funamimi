@@ -10,10 +10,6 @@
 <img width="593" height="421" alt="Zrzut_ekranu_2025-10-24_142238-removebg-preview" src="https://github.com/user-attachments/assets/0863e85e-e476-4ed1-affe-f2e713c1445e" />
 
 
-关于DNI
-私のStrawpageに書いていることと同じで、最低限のマナーとして、常識的で変な人じゃない方を希望します。失礼な人を見つけた場合はブロックしますのでご了承ください。差別発言や嫌がらせはご遠慮ください。それを守っていただければ大丈夫です。
-
-あと、私のStrawpageはまだ製作途中で、ちょっと酷い状態です…
 
 
 
