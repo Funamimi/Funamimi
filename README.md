@@ -1,5 +1,8 @@
 
-はじめまして、フナと申します。<img width="553" height="451" alt="56-removebg-preview(1)" src="https://github.com/user-attachments/assets/85540d46-8381-4155-a8ea-1ccaa0d8a1b8" />
+⋆✴︎˚｡⋆⋆✴︎˚｡⋆⋆✴︎˚｡⋆⋆✴︎˚｡⋆˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
+
+
+はじめまして、フナと申します。<img width="553" height="451" alt="56-removebg-preview(1)" src="https://github.com/user-attachments/assets/85540d46-8381-4155-a8ea-1ccaa0d8a1b8" /> 
 
 
 
