@@ -1,5 +1,6 @@
 
-はじめまして、フナと申します。<img width="400" height="328" alt="MEITU_20251024_184230952-removebg-preview (1) (1)" src="https://github.com/user-attachments/assets/5c9e3e37-e428-459f-8996-785f33ab2ae8" />
+はじめまして、フナと申します。<img width="553" height="451" alt="56-removebg-preview(1)" src="https://github.com/user-attachments/assets/85540d46-8381-4155-a8ea-1ccaa0d8a1b8" />
+
 
 
 :heart:    「Pony Town」ではよくAFKなので、メッセージはDMでお願いします。
