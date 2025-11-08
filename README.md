@@ -13,7 +13,8 @@
 -   「ハリー・ポッター」が大好きで、同じ趣味の友達が欲しいです 
 
 よろしくお願いします！
-<img width="593" height="421" alt="Zrzut_ekranu_2025-10-24_142238-removebg-preview" src="https://github.com/user-attachments/assets/0863e85e-e476-4ed1-affe-f2e713c1445e" />
+
+![G3X_ZiDasAAOw50](https://github.com/user-attachments/assets/4ecba55b-2384-420b-9f4d-89350aa205bf)
 
 特にこれといったNG事項はありません。普通に接していただければ大丈夫です。
 好きなものを楽しまれるのは自由ですが、お互いに気持ちのいい交流を心がけましょうね。
