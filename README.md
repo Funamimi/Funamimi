@@ -1,7 +1,8 @@
 ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
 
-はじめまして、フナと申します。男性です。<img width="826" height="694" alt="Zrzut ekranu 2025-11-08 214119" src="https://github.com/user-attachments/assets/86bfa524-0ea0-4940-86d6-e1557fa4b75c" />
+はじめまして、フナと申します。男性です。<img width="300" height="252" alt="dddd" src="https://github.com/user-attachments/assets/ffbc5571-3b18-4667-834a-7480b6ad9f60" />
+
 
 
 
