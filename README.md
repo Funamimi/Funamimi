@@ -15,8 +15,8 @@
 
 私は18歳以上です。相手の方も18歳以上でお願いします。DMを送ってくれた場合は、18歳以上であることを了解いただいたものとします。
 
+<img width="500" height="500" alt="83be394b69d40be5bcf1bcfe6c929930-removebg-preview(1)" src="https://github.com/user-attachments/assets/9a965dc3-6e68-46cb-b2c4-73a16e12e013" />
 
-![G3X_ZiDasAAOw50](https://github.com/user-attachments/assets/4ecba55b-2384-420b-9f4d-89350aa205bf)
 
 「ハリー・ポッター」が大好きで、同じ趣味の方と友達になりたいです！
 よろしくお願いします。
