@@ -1,7 +1,8 @@
 ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
 
-はじめまして、フナと申します。<img width="300" height="252" alt="dddd" src="https://github.com/user-attachments/assets/ffbc5571-3b18-4667-834a-7480b6ad9f60" />
+はじめまして、フナと申します。<img width="510" height="489" alt="jjooo" src="https://github.com/user-attachments/assets/87c45e12-0643-450c-80e4-884a7ccf34dd" />
+
 
 
 
