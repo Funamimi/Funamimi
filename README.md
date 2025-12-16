@@ -1,10 +1,11 @@
-♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
+♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
 
-はじめまして、フナと申します。<img width="510" height="489" alt="jjooo" src="https://github.com/user-attachments/assets/87c45e12-0643-450c-80e4-884a7ccf34dd" />
+はじめまして、フナと申します。
 
 
 
+<img width="420" height="595" alt="f31ac7bdf64f5f3eccd7056a80530ac3-removebg-preview(3)" src="https://github.com/user-attachments/assets/3515ddd2-6bca-4c54-8ef3-02390a554b21" />
 
 
 
