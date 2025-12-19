@@ -31,6 +31,8 @@ DNI
 
 ご理解いただけますようお願いいたします。
 
+<img width="627" height="398" alt="c4e4aa4eeaaab5542e2a5b5cf97dde7c-removebg-preview (1)" src="https://github.com/user-attachments/assets/040f7fad-24c1-49b6-a50b-dd73be4432f1" />
+
 
 
 
