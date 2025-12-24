@@ -3,9 +3,9 @@
 
 はじめまして、フナと申します。
 
+<img width="536" height="466" alt="0750dd8a4129a84186d977f1b1d24f91__1_-removebg-preview" src="https://github.com/user-attachments/assets/e13d5078-b013-4a89-81df-2e93dd1a8a00" />
 
 
-<img width="420" height="595" alt="f31ac7bdf64f5f3eccd7056a80530ac3-removebg-preview(3)" src="https://github.com/user-attachments/assets/3515ddd2-6bca-4c54-8ef3-02390a554b21" />
 
 
 
