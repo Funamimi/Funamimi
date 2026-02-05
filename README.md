@@ -17,7 +17,7 @@
 
    ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧
 𝙁𝘼𝙉𝘿𝙊𝙈𝙎:
-Harry Potter / The Legend of Zelda / Moomins /sonic/kuroshitsuji
+Harry Potter / The Legend of Zelda /sonic/kuroshitsuji
         ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ 
 
 
