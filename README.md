@@ -43,7 +43,7 @@ Harry Potter / The Legend of Zelda /sonic/kuroshitsuji
 Thirty Seconds to Mars / 妖精帝國 / The Cure / HIM / Anna Blue
 
 🖤𝙁𝙍𝙄𝙀𝙉𝘿𝙎🖤
-Damien /Mika / Lynxie / Eugh / Antje / Kasia /Panda
+Damien /Mika / Lynxie / Eugh
 
 https://arab.org/click-to-help/palestine/
 
