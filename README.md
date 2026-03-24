@@ -1,8 +1,8 @@
 ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚
 ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
-<img width="500" height="499" alt="cd65f80350e4d3596fab5983c884b1b2-removebg-preview (1)" src="https://github.com/user-attachments/assets/08d26ed7-287a-4773-99a0-8067803dd8de" />
 
+<img width="480" height="520" alt="45394a33c015e12d69dd9f1374841cf2-removebg-preview (1)" src="https://github.com/user-attachments/assets/5a1a6a08-d436-4ac0-accb-72c444bd50da" />
 
 
 はじめまして。Funa／Perciと呼んでください。
