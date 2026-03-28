@@ -47,10 +47,10 @@ Damien /Mika / Lynxie / Eugh
 
 https://arab.org/click-to-help/palestine/
 
+<img width="778" height="321" alt="09ffe7df91adfd984197e1e765588569-removebg-preview" src="https://github.com/user-attachments/assets/f643965e-5ca0-4450-a3fb-e48f6c1e4860" />
 
 
 
-<img width="627" height="398" alt="c4e4aa4eeaaab5542e2a5b5cf97dde7c-removebg-preview (1)" src="https://github.com/user-attachments/assets/040f7fad-24c1-49b6-a50b-dd73be4432f1" />
 
 
 
