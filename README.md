@@ -49,6 +49,8 @@ https://arab.org/click-to-help/palestine/
 
 <img width="778" height="321" alt="09ffe7df91adfd984197e1e765588569-removebg-preview" src="https://github.com/user-attachments/assets/f643965e-5ca0-4450-a3fb-e48f6c1e4860" />
 
+Hi dear, I'm using Google Translate to write this, so there may be mistakes. If I blocked any of you or you blocked me, it might happen that I'm covering your pony. I can't see it because I don't have multi accounts to check it. If you notice it, just change the place if sitting next to me is uncomfortable for you. I apologize for any problems
+
 
 
 
