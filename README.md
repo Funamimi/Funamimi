@@ -4,6 +4,8 @@
 
 <img width="480" height="520" alt="45394a33c015e12d69dd9f1374841cf2-removebg-preview (1)" src="https://github.com/user-attachments/assets/5a1a6a08-d436-4ac0-accb-72c444bd50da" />
 
+https://funammii.straw.page/ (ENGLISH TRANSLATION)
+
 
 はじめまして。Funa／Perciと呼んでください。
 
