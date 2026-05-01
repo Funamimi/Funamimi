@@ -2,7 +2,7 @@
 ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
 
-<img width="480" height="520" alt="45394a33c015e12d69dd9f1374841cf2-removebg-preview (1)" src="https://github.com/user-attachments/assets/5a1a6a08-d436-4ac0-accb-72c444bd50da" />
+<img width="641" height="389" alt="Zrzut_ekranu_2026-05-01_233643-removebg-preview" src="https://github.com/user-attachments/assets/6da8d151-28f6-4df1-a0ed-48de36c6b320" />
 
 
 
@@ -50,7 +50,6 @@ Please stop asking about the Kosherea situation, especially if you're a stranger
 some people in this game really don't respect other people's privacy
 
 
-<img width="778" height="321" alt="09ffe7df91adfd984197e1e765588569-removebg-preview" src="https://github.com/user-attachments/assets/f643965e-5ca0-4450-a3fb-e48f6c1e4860" />
 
 
 
