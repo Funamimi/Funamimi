@@ -2,7 +2,7 @@
 ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
 
-<img width="482" height="517" alt="slazzer-preview-u1spg" src="https://github.com/user-attachments/assets/54caef22-9568-434c-bf40-8a21e828f1b9" />
+<img width="458" height="501" alt="83614691f4ce25fee7e09912cd06c415-Photoroom" src="https://github.com/user-attachments/assets/c6b8f32c-8909-473c-86a3-f677b8a50ed4" />
 
 
 
