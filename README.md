@@ -49,7 +49,7 @@ Damien, /Mika / Lynxie,Kosherea/Mojunpwo, / Eugh
 Please stop asking about the Kosherea situation, especially if you're a stranger from ponytown.Texting her friends asking about her drama is so weird. I'll block anyone who does that.
 some people in this game really don't respect other people's privacy
 
-<img width="436" height="572" alt="Zrzut_ekranu_2026-05-01_234035-removebg-preview" src="https://github.com/user-attachments/assets/f3e24956-ef3b-4de2-a208-2507fc4db0cc" />
+<img width="436" height="572" alt="slazzer-preview-be1gz" src="https://github.com/user-attachments/assets/d1fbf421-2b88-4481-bf49-dd77a85145c8" />
 
 
 
