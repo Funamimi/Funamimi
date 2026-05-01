@@ -18,7 +18,7 @@
 
    ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧
 𝙁𝘼𝙉𝘿𝙊𝙈𝙎:
-Harry Potter / The Legend of Zelda /sonic/kuroshitsuji
+Harry Potter / QSMP/The Legend of Zelda /sonic/kuroshitsuji
         ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ 
 
 
@@ -46,8 +46,6 @@ Thirty Seconds to Mars / 妖精帝國 / The Cure / HIM / Anna Blue
 🖤𝙁𝙍𝙄𝙀𝙉𝘿𝙎🖤
 Damien, /Mika / Lynxie,Kosherea/Mojunpwo, / Eugh
 
-Please stop asking about the Kosherea situation, especially if you're a stranger from ponytown.Texting her friends asking about her drama is so weird. I'll block anyone who does that.
-some people in this game really don't respect other people's privacy
 
 
 
