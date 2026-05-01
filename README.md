@@ -46,7 +46,9 @@ Thirty Seconds to Mars / 妖精帝國 / The Cure / HIM / Anna Blue
 🖤𝙁𝙍𝙄𝙀𝙉𝘿𝙎🖤
 Damien, /Mika / Lynxie,Kosherea/Mojunpwo, / Eugh
 
-https://arab.org/click-to-help/palestine/
+Please stop asking about the Kosherea situation, especially if you're a stranger from ponytown.Texting her friends asking about her drama is so weird. I'll block anyone who does that.
+some people in this game really don't respect other people's privacy
+
 
 <img width="778" height="321" alt="09ffe7df91adfd984197e1e765588569-removebg-preview" src="https://github.com/user-attachments/assets/f643965e-5ca0-4450-a3fb-e48f6c1e4860" />
 
