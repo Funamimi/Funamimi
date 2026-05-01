@@ -2,7 +2,7 @@
 ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
 
-<img width="641" height="389" alt="Zrzut_ekranu_2026-05-01_233643-removebg-preview" src="https://github.com/user-attachments/assets/6da8d151-28f6-4df1-a0ed-48de36c6b320" />
+<img width="482" height="517" alt="slazzer-preview-u1spg" src="https://github.com/user-attachments/assets/54caef22-9568-434c-bf40-8a21e828f1b9" />
 
 
 
